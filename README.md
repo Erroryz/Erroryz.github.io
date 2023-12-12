@@ -1,2 +1,2 @@
-# oi mneu parça👍
+# oi meu parça👍
 ## esse site é foda, sem condicoes 🔥🔥🔥🔥🔥
